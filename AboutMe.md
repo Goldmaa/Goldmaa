@@ -1,7 +1,7 @@
 # About me
 
 Hi guys! I'm one of the leaders of WellyCompSci. 💻🧪
-If you have any questions or want to discuss anything, you can Email 📧 or Teams message me at any time!
+If you have any questions or want to discuss anything, you can Email 📧 or Teams Message 💬 me at any time!
 
 Alex Goldman |
 Email: goldmaa@wellingtoncollege.org.uk |
